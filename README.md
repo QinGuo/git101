@@ -4,4 +4,4 @@ Today, I went to National library in Beijing for the first time. I've been in Be
 
 The library closed at 5:01 pm, and I went back to my office and stayed there until 9:30, then I went back home.
 
-Feels a wonderful day.
+It is a wonderful day.
